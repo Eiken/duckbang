@@ -1,0 +1,2 @@
+# duckbang
+cheat to win
